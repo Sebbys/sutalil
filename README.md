@@ -7,3 +7,5 @@ Kelas : S1SD03-A
 </pre>
 
 ## Sutalil was heres
+# AMERUDIN WAS RIGHT
+
